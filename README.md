@@ -1,0 +1,2 @@
+# -WeDoItCheaper
+WeDoItCheaper.com is an online super-portal that connects freelancers with buyers of online services from around the world to form a global online marketplace that affords them the opportunity to find any type of freelance service at a very affordable price! The world is uniting into a global marketplace which gives all of us a wider opportunity to expand and grow our businesses! 
